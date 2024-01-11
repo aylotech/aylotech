@@ -2,7 +2,7 @@
 - 👀 I’m interested in Games, Anime and Learning new Things
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on Google, Apple, Square Enix, Nintendo and more
-- 📫 How to reach me arlendgashi1996@gmail.com
+- 📫 How to reach me aylotechnology@gmail.com
 - 😄 Pronouns: he
 - ⚡ Fun fact: Dancing Hip-Hop is also my passion
 
